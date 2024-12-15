@@ -1,0 +1,1 @@
+# Responzivn-str-nka
